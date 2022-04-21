@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @yashsy
 - 👀 I’m interested in product design
-- 🌱 I’m currently learning UI/UX design
+- 🌱 I’m currently at beginner stage of UI/UX design
 - 💞️ I’m looking to collaborate on any UI/UX design work
 - 📫 How to reach me twitter: https://twitter.com/YashpatelSy or mail: design.yashpatel@gmail.com
 
